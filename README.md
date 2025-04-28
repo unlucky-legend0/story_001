@@ -7,4 +7,4 @@
 # 真善忍问你，这个人是谁？
 # 2017拍的视频??据说[第一个人]就是(广州市政府)(附体鬼)支持的(附体人)(胡业迎)(主元神活人)。
 
-![真善忍问你，认识这个男吗？1](https://github.com/user-attachments/assets/a787fd76-a92d-41bd-9545-bf4242f97083)
+![真善忍问你，认识这个男吗？1](https://github.com/user-attachments/assets/c2855d42-0e1e-40cd-ae2b-41f7fcd8c97b)
