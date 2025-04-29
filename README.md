@@ -6,6 +6,6 @@
 # story_001
 # 这是[视频演戏][情节虚构][不要误会]，这是真善忍聊天。
 # 真善忍问你，这个人是谁？
-# 2017拍的视频??据说[第一个人]就是(广州市政府)(附体鬼)支持的(附体人)(胡业迎)(主元神活人)。<span style="color:red;">李洪志杀↓元神他心通灭族↓</span>
+# 2017拍的视频??据说[第一个人]就是(广州市政府)(附体鬼)支持的(附体人)(胡业迎)(主元神活人)。<span style="color:red;">李洪志杀↓层层元神他心通灭族↓</span>
 
-![真善忍问你，认识这个男吗？2](https://github.com/user-attachments/assets/f12e74d3-2adf-44db-abb2-2161481e2ac2)
+![真善忍问你，认识这个男吗？21](https://github.com/user-attachments/assets/9a810a7a-a2f5-43a0-a9fa-a878da0d8f4a)
