@@ -11,4 +11,4 @@
 # 元神他心通[层层][灭黑业]↓
 # 它们已经时时刻刻[人心][黑业][着火][下跪]。
 
-![真善忍问你，认识这个男吗？23](https://github.com/user-attachments/assets/34a95d13-67b3-4ef6-8a47-0162b9227f2c)
+![真善忍问你，认识这个男吗？24](https://github.com/user-attachments/assets/f7578312-c0eb-4a71-a396-37f816937858)
